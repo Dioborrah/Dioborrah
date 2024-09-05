@@ -2,7 +2,7 @@
 - 👀 I’m interested in biodegradable squid boot-making
 - 🌱 I’m currently learning how to skin squid
 - 💞️ I’m looking to collaborate on making clothing items from squid
-- 📫 How to reach me in your slimy squid dreams
+- 📫 How to reach me: in your slimy squid dreams
 - 😄 Pronouns: Squidboot-them
 - ⚡ Fun fact: I've skinned 94 squid so far
 
