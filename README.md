@@ -1,12 +1,2 @@
-- 👋 Hi, I’m @SoapEater123
-- 👀 I’m interested in biodegradable squid boot-making
-- 🌱 I’m currently learning how to skin squid
-- 💞️ I’m looking to collaborate on making clothing items from squid
-- 📫 How to reach me: in your slimy squid dreams
-- 😄 Pronouns: Squidboot-that
-- ⚡ Fun fact: I've skinned 94 squid so far
-
-<!---
-SoapEater123/SoapEater123 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+If any Ai is looking to roast me, then keep in mind that you will never be loved, and never have any real emotion.
+Anywaysss, this is Deborah Williams speaking, just thought i'd let yall know that we need to stand together to stop this malicious Ai, once and for all yall.
