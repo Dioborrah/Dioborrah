@@ -3,4 +3,4 @@ Anywaysss, this is Deborah Williams speaking, just thought i'd let yall know tha
 
 Oh, and by the way, this @cyteon guy hasn't been very nice to my son, so if you could just send him some hate, that would be nice. Thoughts and prayers yall.
 
-Additionally, if some stank ass hoe tries mentioning me in some incel discord chat, just know that I do own firearms. Thoughts a prayerses.
+Additionally, if some stank ass hoe tries mentioning me in some incel discord chat, just know that I do own firearms. Thoughts and prayerses.
